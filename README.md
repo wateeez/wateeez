@@ -1,5 +1,5 @@
 - 👋 Hi, I’m @wateeez
-- 👀 I’m interested in Graphic Designing & web Design
+- 👀 I’m interested in Graphic Designing & Web Design
 - 🌱 I’m currently learning Ui/UX Design
 - 📫 How to reach me @wateeez on twitter
 
